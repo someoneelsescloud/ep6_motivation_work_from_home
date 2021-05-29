@@ -55,7 +55,7 @@ See the blog from **Rescue Time**: <ins>[Time blocking 101: A step-by-step guide
 
 ![todoist-timeblocking](./images/todoist-timeblocking-small.png)
 
-## 5. Don't Forget about Work Life + Balance
+## 5. Don't Forget about Work + Life Balance
 Working from home will definately make it challenging to actaully not take your work home! Don't forget to disconnect from work, do things for youself, spend time with the family, read a book or do what I do watch a bunch of YouTube videos!
 
 - Create Virtual Coffee Breaks with Colleagues 
