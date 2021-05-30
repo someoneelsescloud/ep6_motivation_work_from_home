@@ -1,5 +1,17 @@
 # EP6: Six Ways to Stay Motivated when Working from Home
 
+Check out the video on YouTube: https://youtu.be/UatYdIqEFmY
+Social Media: http://instagram.com/someoneelsescloud 
+Twitter: https://twitter.com/some1elsescloud
+
+
+Listen to the Audio Only version:
+Google Podcasts: https://cutt.ly/ogvwqTl   
+Apple Podcasts: https://cutt.ly/YgvweNk
+Spotify Podcasts: https://cutt.ly/igvwezs
+Stitcher Radio: https://cutt.ly/ugvwewo
+Tunein Radio: https://cutt.ly/Xgvwwpf
+
 ## 1. Invest in your Home Workspace Setup
 The importance of investing on your home workspace is often overlooked. You don't have to get the most expensive setup but investing in your workspace is like investing in your health.
 
